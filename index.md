@@ -7,4 +7,4 @@ Der Dude ist der Imperator des Imperiums
 ## Zitate
 Wie der Imperator zu sagen pflegt:
 >SUMMON THE ELECTOR COUNTS!
-Noch ein Text
+Noch ein Text hehehehe
