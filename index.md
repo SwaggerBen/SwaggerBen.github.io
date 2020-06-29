@@ -4,3 +4,6 @@ Der Dude ist der Imperator des Imperiums
 * Liebt das Imperium
 * Hasst Häretiker
 * Liebt Schlachten schlagen
+## Zitate
+Wie der Imperator zu sagen pflegt:
+>SUMMON THE ELECTOR COUNTS!
